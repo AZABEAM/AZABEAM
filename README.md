@@ -1,12 +1,8 @@
-— Aza Beam Speaking  , , 
+꩜ INT if you'd like just be warned I'm awkward and have social anxiety on and offline .
 
-" The World .  . " 
+Feel free to INT unless you're under 14, please don't speak to me if so. 
 
-— I don't mind people interacting with me just don't be weird . 
-
-DNI : Under 14 
-
-I'm almost always busy or not busy , take a guess. 
+>> ♯ Huge Comfort Character Right now : Metal Sonic + Sonic
 
 Take a look at my strawpage ! ᡣ𐭩
 https://azabeam.straw.page
